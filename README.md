@@ -1,1 +1,0 @@
-# bimestral-DAM
